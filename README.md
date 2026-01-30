@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do SerpianDev-Stack 😁   
+## Bem-vindo(a) ao perfil do João Gomes 😁   
 
 <div>
   <a href="https://github.com/SerpianDev-Stack">
